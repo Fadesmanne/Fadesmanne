@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Fadesmanne
+- 👀 I’m interested in video games & YouTube 🎮
+- 🌱 I’m currently learning how to script 💻
+- 📫 How to reach me, instagram: @Fadesmanne
